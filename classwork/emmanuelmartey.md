@@ -1,4 +1,4 @@
-# Emmanuel Martey
+# **Emmanuel Martey**
 
 ## Hometown
 *Tema,Ghana*
